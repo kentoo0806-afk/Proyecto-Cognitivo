@@ -102,3 +102,10 @@ Semana 14
 Semana 15
 <img width="1024" height="572" alt="WhatsApp Image 2026-11-06 at 11 16 43 AM" src="https://github.com/user-attachments/assets/b56f47da-97a8-452f-88d4-14fa8537806c" />
 
+Semana 16
+<img width="1024" height="572" alt="WhatsApp Image 2026-11-13 at 10 55 12 AM" src="https://github.com/user-attachments/assets/49611bfe-5a0f-427e-ad26-6c373bd8c61b" />
+
+Semana 17
+<img width="1024" height="572" alt="45a08884-1990-4315-98f5-deb81346cd22" src="https://github.com/user-attachments/assets/2f41095a-440b-45d5-9d18-131aeec2ad1b" />
+
+
